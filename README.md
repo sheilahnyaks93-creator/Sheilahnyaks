@@ -13,5 +13,5 @@ Hi, I'm [Sheilah Nyakerario]
 - [Project name](link) — short description
 
 ## How to Reach Me
-- Email: [sheilah nyaks93@gmail.com]
+- Email: [sheilahnyaks93@gmail.com]
 - LinkedIn: [your LinkedIn profile link
